@@ -81,11 +81,21 @@ the How.
 - We obtained an inheritance so that we might be to the praise of his glory.
 - We were predestined so that we might be to the praise of his glory.
 - His purpose was so that we might be to the praise of his glory.
-- We (including the reader, today) were the first to hope in Christ (perhaps in
-  the sense that we hope in Christ during this era -- before the final
-  judgement).
 - They (the writer, and their immediate audience), who were the first to hope
   in Christ, were chosen (perhaps for the task of initially spreading the
   gospel) to the praise of his glory.
 
-There's another colon here.  In my opinion, this plus the context imp
+There's another colon here.
+
+- You were also sealed.
+- You were chosen in him.
+- You were sealed when you heard and believed.
+- You heard the word of truth.
+- You heard the gospel of your salvation.
+- The word of truth is the gospel of your salvation.
+- You believed in him.
+- You were sealed with the promised Holy Spirit.
+- The Holy Spirit is the guarantee of our inheritance.
+- The Holy Spirit guarantees our inheritance until we acquire posession of it.
+- Our posession of our inheritance will be to the praise of his glory.
+- The seal is to the praise of his glory.
